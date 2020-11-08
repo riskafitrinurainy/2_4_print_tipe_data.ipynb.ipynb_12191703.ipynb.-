@@ -1,0 +1,1 @@
+# 2_4_print_tipe_data.ipynb.ipynb_12191703.ipynb.-
